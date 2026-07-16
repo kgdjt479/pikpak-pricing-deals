@@ -1,4 +1,4 @@
-# Best PikPak Discount: How to Get the Cheapest Premium Plan? Invitation Code Free Trial, Annual vs Monthly Pricing, Global vs Regional Breakdown — Complete Money-Saving Guide (含全套餐价格对比表)
+# Best PikPak Discount: How to Get the Cheapest Premium Plan? Invitation Code Free Trial, Annual vs Monthly Pricing, Global vs Regional Breakdown — Complete Money-Saving Guide
 
 So you've heard about this thing called PikPak, right? The cloud storage that downloads your torrents and magnet links at ludicrous speed while you sit back and do nothing. Sounds great. But then you look at the premium price tag and think — hold on, is there a cheaper way?
 
